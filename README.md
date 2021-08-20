@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @caesaroctavius
-- 👀 I’m interested in ...lean manugfacturing, finance, tech´s develop
+- 👀 I’m interested in ...lean manufacturing, finance, tech´s develop
 - 🌱 I’m currently learning ... app´s development
 - 💞️ I’m looking to collaborate on ...finance
 - 📫 How to reach me ...innovation, value generation and related
